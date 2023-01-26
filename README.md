@@ -1,5 +1,5 @@
 ### Hey 👋
-### My name is Niara!
+### My name is Niara Afriyie!
 
 - 🔭 I’m a student at Raritan Valley Community College 📖 ...
 - 🌱 I’m currently majoring in Information Systems and Technology 💻 ...
