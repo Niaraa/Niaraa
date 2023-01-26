@@ -1,4 +1,4 @@
-### Hey :wave:
+### Hey I'm Niara :wave:
 
 <!--
 **Niaraa/Niaraa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
